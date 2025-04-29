@@ -1,2 +1,2 @@
 # Gloria-Adams.-Fx-
-Verified Trader 💯 Awarded with $18M BTC Withdrawal Guaranteed 💯✅  100% Legit 🏆📌📊
+HELPING INDIVIDUAL REACHING OUT THEIR GOALS YOU CAN START EARNING $8000 EVERY WEEK MASSIVELY Withdrawal Guaranteed 💯✅  100% Legit 🏆📌📊
